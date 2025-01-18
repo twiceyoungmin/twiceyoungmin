@@ -19,6 +19,7 @@ someone : ur teeth..
 me : oh!my teeth is rabbit.....
 someone : it cute.
 me : ...
+
 /wave ok that all so thanks you for reading! bai baiii💖
 ![402366576-d67a23cb-7eae-4c25-a4e8-ed5664ef758e](https://github.com/user-attachments/assets/e9169604-9e28-4813-bbc3-190d1e3b610b)
 
