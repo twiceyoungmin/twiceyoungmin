@@ -3,7 +3,7 @@
 
 i love you all!! c+h + int ^_^ 🥕
 
-hihii ! im vinn :3 so this acc is for pt! call me he/him :q if i afk or freeze😭😭 u can int with me it oki:3 tysm friend u r my fav i love you all!. chi,artemis,kero,lemoni,yixra,theme,ryan,
+hihii ! im vinn :3 so this acc is for pt! call me he/him :q if i afk or freeze😭😭 u can int with me it oki:3 tysm friend u r my fav i love you all!. chi,artemis,kero,lemoni,yixra,theme and ryan!
 
 i very miss u ryan when ur back :( im still waiting for u ryan we miss u we never forgot u,u the best
 
