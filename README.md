@@ -18,13 +18,17 @@ me : wow...uhh yea...i wear glasses...but why you think im nerd...
 someone : ur teeth..
 
 me : oh!my teeth is rabbit.....
+
 someone : it cute.
+
 me : ...
 
 /wave ok that all so thanks you for reading! bai baiii💖
 
 
 ![b4b86e2f95381b402e71fd3089d370ab](https://github.com/user-attachments/assets/eff0b06f-23e8-4d97-93f2-ec39cff0d7fe)
+
+![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
 
 
 
