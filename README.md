@@ -1,4 +1,5 @@
-![Uploading dg8jcaw-ef37237b-7f38-453b-bc45-851bf276df1a.gif…]()
+![dg8jcaw-ef37237b-7f38-453b-bc45-851bf276df1a](https://github.com/user-attachments/assets/dd1cdca2-40b8-4e71-ad70-0a4377734351)
+
 
 
 i love you all!! c+h + int ^_^ 🥕
