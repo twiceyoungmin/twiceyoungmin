@@ -2,7 +2,7 @@
 
 
 
-𝗶 𝗹𝗼𝘃𝗲 𝗴𝗲𝗻𝘀𝗵𝗶𝗻 𝗶𝗺𝗽𝗮𝗰𝘁!!! 𝗜 𝗵𝗮𝘃𝗲 𝗳𝗮𝘃 𝗰𝗵𝗮𝗿𝗮𝗰𝘁𝗲𝗿 𝗮𝗹𝘀𝗼!! 𝗙𝗨𝗥𝗜𝗡𝗔!!!🌸🦋  
+𝗶 𝗹𝗼𝘃𝗲 𝗴𝗲𝗻𝘀𝗵𝗶𝗻 𝗶𝗺𝗽𝗮𝗰𝘁!!! 𝗜 𝗵𝗮𝘃𝗲 𝗳𝗮𝘃 𝗰𝗵𝗮𝗿𝗮𝗰𝘁𝗲𝗿 𝗮𝗹𝘀𝗼!! layla!!!🌸🦋  
 
 
 ![2f437614d7fa7239696a8b34d5e41769](https://github.com/user-attachments/assets/83064003-823a-484f-b2f6-67b5efe30b5d)
@@ -19,6 +19,9 @@
 
 
 ![genshin-impact-traveler-lumine-333dwasply0wnq8n](https://github.com/user-attachments/assets/cb19609e-e3a6-40d2-80ee-5b07a79d4495)
+
+
+![layla-genshin-impact (1)](https://github.com/user-attachments/assets/858dc1a1-d26f-4f04-9171-4ecc2c476145)
 
 
 
