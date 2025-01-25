@@ -1,32 +1,29 @@
-![dg8jcaw-ef37237b-7f38-453b-bc45-851bf276df1a](https://github.com/user-attachments/assets/dd1cdca2-40b8-4e71-ad70-0a4377734351)
+𝗶 𝗹𝗼𝘃𝗲 𝗴𝗲𝗻𝘀𝗵𝗶𝗻 𝗶𝗺𝗽𝗮𝗰𝘁!!! 𝗜 𝗵𝗮𝘃𝗲 𝗳𝗮𝘃 𝗰𝗵𝗮𝗿𝗮𝗰𝘁𝗲𝗿 𝗮𝗹𝘀𝗼!! 𝗙𝗨𝗥𝗜𝗡𝗔!!!🌸🦋  
+
+
+![2f437614d7fa7239696a8b34d5e41769](https://github.com/user-attachments/assets/83064003-823a-484f-b2f6-67b5efe30b5d)
+# furina💙🦋
+
+![6a1065148fea1084dfb8b343788f993c](https://github.com/user-attachments/assets/ca21f08a-6925-4d64-a52b-fdcfad17bd4f)
 
 
 
-i love you all!! c+h + int ^_^ 🥕
 
-hihii ! im vinn :3 so this acc is for pt! call me he/him :q if i afk or freeze😭😭 u can int with me it oki:3 tysm friend u r my fav i love you all!. chi,artemis,kero,lemoni,yixra,theme and ryan!
-
-i very miss u ryan when ur back :( im still waiting for u ryan we miss u we never forgot u,u the best
-
-i like to drawing :3 that my hobbie!!! idk i have many fandom😭 but not problem sooo ; im thai ! my eng is not good someone dont understand what i said heh😢
-but i really luv to draw fanarts for everyone!
-
-someone : i see you are NERD
-
-me : wow...uhh yea...i wear glasses...but why you think im nerd...
-
-someone : ur teeth..
-
-me : oh!my teeth is rabbit.....
-
-someone : it cute.
-
-me : ...
-
-/wave ok that all so thanks you for reading! bai baiii💖
+![52ea062d73fb95f4fdbee7c0c20fa5a2_5091057992781217512](https://github.com/user-attachments/assets/8f190994-f79b-40b5-b772-e72272649fce)
 
 
-![b4b86e2f95381b402e71fd3089d370ab](https://github.com/user-attachments/assets/eff0b06f-23e8-4d97-93f2-ec39cff0d7fe)
+
+
+![genshin-impact-traveler-lumine-333dwasply0wnq8n](https://github.com/user-attachments/assets/cb19609e-e3a6-40d2-80ee-5b07a79d4495)
+
+
+
+
+
+
+![oiiaioiiai](https://github.com/user-attachments/assets/c94f2d22-b784-4392-a6b3-7ae1a5ba14be)
+
+
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
 
