@@ -1,7 +1,3 @@
-![68747470733a2f2f66696c65732e636174626f782e6d6f652f6c69777a6d382e706e67](https://github.com/user-attachments/assets/7604b1b3-46d9-4f38-8cf4-fc90acc75bb0)
-
-
-
 𝗶 𝗹𝗼𝘃𝗲 𝗴𝗲𝗻𝘀𝗵𝗶𝗻 𝗶𝗺𝗽𝗮𝗰𝘁!!! 𝗜 𝗵𝗮𝘃𝗲 𝗳𝗮𝘃 𝗰𝗵𝗮𝗿𝗮𝗰𝘁𝗲𝗿 𝗮𝗹𝘀𝗼!! layla!!!🌸🦋  
 
 
@@ -33,12 +29,12 @@
 
 
 
-![68747470733a2f2f66696c65732e636174626f782e6d6f652f6c69777a6d382e706e67](https://github.com/user-attachments/assets/e7c17a16-03e8-4fc4-a175-111d5a143c76)
 
 
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
+
+![](https://komarev.com/ghpvc/?username=your-github-username&color=green)
 
 
 
