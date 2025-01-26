@@ -1,12 +1,3 @@
-𝗶 𝗹𝗼𝘃𝗲 𝗴𝗲𝗻𝘀𝗵𝗶𝗻 𝗶𝗺𝗽𝗮𝗰𝘁!!! 𝗜 𝗵𝗮𝘃𝗲 𝗳𝗮𝘃 𝗰𝗵𝗮𝗿𝗮𝗰𝘁𝗲𝗿 𝗮𝗹𝘀𝗼!! layla!!!🌸🦋  
-
-
-hi it's me "vin" who probably wants to explain a lot about myself Some of my beliefs are personal, some of them I can explain to you :)
-
-
-I have depression...I'm not happy all the time. I just want to have friends. I don't want anyone to hate me. Having just one person hate me makes me happy and it starts to disappear. Now I'm only 30-40% happy If I meet a close friend, I'll still be just as happy. Ask: "What can I do to be happier?" Being alone ;) I don't feel brave enough to go see my friends. I'm "scared" that my feelings are slowly getting worse. It hurts the person who made me feel this way. So "most people in the game" I hate, hate, hate!!! I want to be happy like other people. Why can't I? As long as I sit in my room and cry, whenever I have friends, they can make me happy. But it's still the same. I went to school. In my eyes, all my friends' faces were covered with black squares because I hated them.they likes to bully me and tease me...Thank you for reading so you can understand me :)
-
-
 
 ![2f437614d7fa7239696a8b34d5e41769](https://github.com/user-attachments/assets/83064003-823a-484f-b2f6-67b5efe30b5d)
 
